@@ -1,1 +1,1 @@
-![YT project](image.png)Let's Create MY-YouTube Project  🚀![alt text](image-1.png)
+Let's Create MY-YouTube Project 🚀
